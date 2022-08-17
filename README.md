@@ -1,4 +1,4 @@
--  ola, mu nome é @LNTZTrainBullet
+-  ola, meu nome é @LNTZTrainBullet
 -  
 - procuro femeas disponiveis obs:nao aceito casadas.
 - 
